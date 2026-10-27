@@ -364,111 +364,81 @@ Dex era diferente de todas elas, e não era por causa do peso ou da aspereza.
 
 Era porque Dex também media tudo. Era porque, quando Matt o tocou, o coração dele não acelerou para oitenta e cinco como o de uma mulher excitada; ele bateu em cem, firme, uniforme, e depois em cento e cinco, e Matt podia ouvir a disciplina de um homem tentando não se desfazer, e podia ouvir o exato instante em que ela cedeu — um degrau, um único degrau fora de compasso, como uma peça que se solta de uma máquina.
 
-Matt subiu as mãos pelo peito dele. Sentiu a pele, e a cicatriz antiga no ombro dele que ele ainda não havia explicado, e o músculo que se contraía por baixo. Sentiu o cabelo curto na nuca, molhado de suor antes mesmo de haver motivo. E sentiu, quando escorregou a mão para baixo, o corpo inteiro de Dex se arquear para encontrá-la.
+Matt subiu as mãos pelo peito dele. Sentiu a pele, e a cicatriz antiga no ombro dele que ele ainda não havia explicado, e o músculo que se contraía por baixo. Sentiu o cabelo curto na nuca, molhado de suor antes mesmo de haver motivo.
 
-— Espera — disse Dex.
+E então desceu a mão, sem cerimônia nenhuma, e fechou os dedos em volta do pau dele por cima do jeans.
 
-Matt parou na hora. A mão dele ficou onde estava, imóvel.
-
-— O que é?
-
-— Nada. — A respiração dele estava irregular. — É que... — Ele riu, e o riso estava nervoso. — Eu estou nervoso. Isso é ridículo. Eu estou com a porra do corpo coberto de suor e eu estou nervoso.
-
-— Por quê?
-
-— Porque você vai ver.
-
-Matt ficou muito quieto.
-
-— Dex.
-
-— Não, eu não... — Ele soltou o ar. — Eu passei a vida inteira sendo o melhor em alguma coisa. A única coisa. E você não vai me ver atirar. — Uma pausa. — Isso aqui é a única coisa que eu tenho que eu não sei fazer direito.
-
-Matt ergueu as duas mãos e as pôs no peito dele, abertas, sobre o coração que batia em cento e vinte.
-
-— Eu também não sei — disse ele. — Eu nunca fiz isso com um homem. Nunca. Eu não sei onde pôr as minhas mãos, eu não sei o que você gosta, eu não sei o que eu estou fazendo. — Ele sorriu, e sentiu o próprio sorriso sair torto e honesto. — A diferença é que eu não tenho como ver se estou fazendo errado. Então você vai ter que falar.
-
-O som que Dex soltou não foi riso nem suspiro; foi as duas coisas, e por baixo havia um alívio tão grande que doía ouvir.
-
-— Está bom — disse ele. — Assim.
-
-E então ele tomou a iniciativa.
-
-Matt não estava preparado. Não para a boca de Dex na sua garganta — que ele já conhecia —, mas para a lentidão. Dex desceu pelo peito dele com a paciência de um homem fazendo um trabalho que só se faz uma vez. Mordeu de leve a pele sobre a clavícula e parou ali, e Matt sentiu o hálito quente se espalhando pela pele molhada de saliva, e sentiu o próprio corpo inteiro se contrair em direção àquela boca como uma planta em direção à luz.
-
-— Você está tremendo — disse Dex, contra o peito dele.
-
-— Eu sei.
-
-— Isso é bom?
-
-— Não sei. — Matt engoliu. — Ainda não decidi.
-
-Dex riu baixinho, e a vibração do riso dele contra a pele de Matt arrancou um som da garganta de Matt que ele não pretendia soltar.
-
-As mãos de Dex desceram. Encontraram o cós da calça de Matt, e pararam ali, e a pergunta veio sem palavras — uma pressão, um instante de espera, um polegar girando em círculo sobre o osso do quadril. Matt pôs a própria mão sobre a dele, e empurrou.
-
-E quando Dex o tocou, foi com uma delicadeza que quase o fez rir de nervoso — uma delicadeza completamente desproporcional, que durou três segundos antes de Dex soltar um som rouco e apertar com a mão inteira, e aí já não havia delicadeza nenhuma, havia um homem que sabia exatamente o que fazer com as mãos e que estava fazendo com uma vontade que Matt sentiu nos dentes.
-
-Matt jogou a cabeça para trás contra o travesseiro.
-
-Ele havia sido tocado mil vezes. Havia sido tocado por mulheres que o amavam, por mulheres que o odiavam, por mulheres que sabiam coisas que ele nunca contaria a um padre. Nada daquilo o havia preparado para o peso específico de uma mão do mesmo tamanho da sua, com o mesmo tipo de calo, com o mesmo tipo de pressa — nada o havia preparado para o fato de que, quando Dex se inclinou e beijou o canto da boca dele enquanto o masturbava, Matt sentiu uma coisa que não era excitação. Era reconhecimento.
-
-*Eu sei o que você está sentindo*, dizia aquela mão. *Eu também estou.*
-
-— Dex — disse Matt, e a voz saiu irreconhecível.
-
-— Fala.
-
-— Vem aqui.
-
-Dex veio. Deitou ao lado dele, e Matt virou o rosto dele com as duas mãos e o beijou, e enquanto o beijava desceu a própria mão pela barriga dele — passando pelo abdômen duro, pelo tremor que se instalou ali — até encontrá-lo.
-
-Dex parou de beijar. A testa dele caiu contra a de Matt, e o ar saiu dele em uma lufada.
+Dex parou de respirar.
 
 — Ah — disse ele, e a palavra saiu completamente quebrada.
 
-— Está bom?
+Matt apertou. Estava duro de um jeito que ele sentiu através do tecido — grosso, quente, atravessado na perna, pulsando contra a palma da mão dele como uma coisa viva. Ele deslizou a mão para cima, devagar, e sentiu a cabeça inchada sob o cotovelo da calça, e sentiu a mancha de umidade que já havia atravessado o tecido.
 
-— Está — ele engasgou. — Está bom. Não para.
+— Você tá molhado — disse Matt.
 
-Matt não parou. Ele aprendeu ali, em tempo real, com o ouvido colado na respiração do outro homem: que pressa demais fazia Dex contrair o ventre e prender o ar; que devagar fazia o coração dele subir de cem para cento e vinte em vinte segundos; que quando Matt usava o polegar na cabeça, Dex fechava a mão no lençol com tanta força que o tecido estalava. Ele aprendeu que Dex gemia baixo, quase contra a própria vontade, e que engolia o som no meio — e que quando Matt apertou o ritmo e disse, no ouvido dele, *deixa eu ouvir*, o som que Dex soltou foi tão sincero que fez o próprio Matt estremecer da cabeça aos pés.
+— Cala a boca.
 
-— Para — disse Dex, de repente. — Para, para, para.
+— Tá encharcado aqui.
 
-Matt parou imediatamente. Ele soltou.
+— *Cala a boca, Murdock.*
 
-— O que foi?
+Matt riu, baixinho, contra a boca dele. E então puxou o botão do jeans, abriu o zíper — o som dos dentes metálicos se separando foi absurdamente alto naquele quarto — e enfiou a mão por dentro.
 
-— Nada. — A respiração dele estava destruída. — Eu ia... — Ele riu, sem fôlego. — Merda.
+A pele. O calor. O pau dele inteiro na palma da mão de Matt, sem nada no meio, e o som que Dex soltou quando Matt o pegou foi o som de um homem levando um soco no estômago.
 
-— Ah.
+— Porra — disse Dex, com a testa caindo no ombro de Matt. — Porra, porra, porra.
 
-— Não é engraçado.
+— Fala.
 
-— É um pouco.
+— O quê?
 
-Dex empurrou o ombro dele, sem força nenhuma, e depois ficou deitado de lado por um instante, respirando, com os olhos fixos em Matt — Matt podia sentir aquele olhar pousado no próprio rosto como um peso.
+— Fala mais. — Matt apertou de novo, e o polegar dele subiu até a cabeça, e espalhou o que havia lá, e desceu de novo, e Dex se curvou inteiro. — Eu gosto da sua voz.
 
-— Eu quero fazer uma coisa — disse Dex.
+Dex riu — um som sem fôlego, quase um soluço.
 
-— Faz.
+— Você é um filho da puta.
 
-— Eu preciso perguntar.
+— Eu sei.
 
-— Está perguntando.
+— Eu passei a semana inteira ouvindo essa sua voz na minha cabeça. — A respiração dele estava destruída. — Eu punhetei pensando nela, Murdock. Três vezes num dia. Na quarta-feira eu bati uma no chuveiro e uma no carro, e ainda não passou.
 
-Dex engoliu. E a pergunta, quando veio, veio ridiculamente formal, quase cerimoniosa, e Matt sentiu uma onda de ternura que não tinha absolutamente nada a ver com o que os seus corpos estavam fazendo:
+Matt sentiu o próprio pau latejar com uma violência que doeu.
 
-— Você quer que eu te chupe?
+— Tira a camisa — disse ele. — Tira tudo.
 
-Matt soltou o ar.
+Dex se afastou o suficiente para se despir, e Matt ficou ouvindo: o zíper, o jeans caindo no assoalho, o tecido da camiseta passando pela cabeça, o som de um corpo grande se movendo no escuro à frente dele. E depois o som dos pés descalços voltando.
 
-— Sim.
+— Agora você — disse Dex.
 
-E então foi a vez dele de perder o chão.
+Matt tirou o resto. Ele ouviu a respiração de Dex mudar quando o boxer caiu no chão, e ouviu o silêncio depois disso — o silêncio de um homem olhando.
 
-Dex desceu pela cama com um movimento que Matt só identificaria depois — a economia de gestos de alguém que não desperdiça movimento —, e se acomodou entre as pernas dele, e passou quarenta segundos inteiros fazendo nada além de beijar a parte interna das coxas de Matt, a pele mais clara ali, com a barba de dois dias raspando e arrancando arrepios que subiam até a nuca dele.
+— O que é? — perguntou Matt.
+
+— Nada. — A voz saiu rouca. — Eu tô olhando o seu pau.
+
+Matt soltou uma risada que ele não esperava.
+
+— E?
+
+— E eu não sei o que eu faço com a informação. — Dex engoliu. — Eu nunca... eu não sei o que se faz. Eu sei o que eu *quero* fazer. Eu não sei se pode.
+
+Matt sentiu o peito apertar de novo, daquele jeito que não tinha nada a ver com desejo.
+
+— Fala o que você quer fazer.
+
+Um silêncio.
+
+— Fala, Dex.
+
+— Eu quero te chupar. — A voz dele saiu baixa, rápida, como quem confessa um crime. — Eu quero te chupar até você gozar na minha boca e eu quero engolir. Eu quero isso desde a academia.
+
+O quarto ficou muito quieto.
+
+— Então faz — disse Matt.
+
+Dex desceu pela cama com um movimento que Matt só identificaria depois — a economia de gestos de alguém que não desperdiça movimento —, e se ajoelhou entre as pernas dele, e passou os braços por baixo das coxas de Matt, e as abriu.
+
+Não beijou. Não fez nada por quarenta segundos inteiros além de respirar ali, com o hálito quente batendo na pele da parte interna das coxas, e Matt sentiu o arrepio subir pela coluna e se instalar na nuca dele.
 
 — Você está fazendo isso de propósito — disse Matt.
 
@@ -482,25 +452,75 @@ Dex desceu pela cama com um movimento que Matt só identificaria depois — a ec
 
 — E eu sou?
 
-— Você está... — Matt parou, porque a boca de Dex encostou nele, apenas encostou, e o pensamento dele se desfez. — Você está aprendendo.
+— Você está... — Matt parou, porque a língua de Dex encostou na base do pau dele, e o pensamento dele se desfez. — Você está aprendendo.
 
-Dex soltou uma risada contra a pele dele, e a risada foi a última coisa coordenada que aconteceu naquele quarto por um bom tempo.
+Dex riu contra a pele dele, e a risada foi a última coisa coordenada que aconteceu naquele quarto por um bom tempo.
 
-Ele não era especialmente hábil; Matt pensou isso nos primeiros segundos, com uma clareza absurda. Ele era *aplicado*. Fazia tudo devagar demais e depois rápido demais. Não sabia usar a língua e depois descobriu, e a descoberta foi tão entusiasmada que Matt teve que pôr a mão na cabeça dele e empurrá-lo para trás um centímetro, só para respirar. Mas havia uma coisa naquilo que nenhuma habilidade teria dado: Dex parava. A cada vinte ou trinta segundos, ele parava, erguia os olhos — Matt sentia aquele olhar — e perguntava, com a voz arruinada, se estava bom.
+Ele não era especialmente hábil; Matt pensou isso nos primeiros segundos, com uma clareza absurda. Ele era *aplicado*. Lambeu a lateral inteira, de baixo para cima, com a língua larga e quente, e parou na cabeça, e girou ali sem pressa, e Matt sentiu o próprio quadril subir sozinho do colchão.
 
-— Está bom.
+— Ah, você gosta disso — disse Dex, e a voz dele era a de um homem descobrindo o ponto fraco de um alvo.
 
-E descia de novo.
+— Não fala.
 
-Matt ouviu tudo. Ele ouviu o som molhado que a boca de Dex fazia, e o som da respiração dele pelo nariz, e o som do lençol sendo apertado. Ouviu o coração de Dex em cento e trinta e dois, e ouviu o próprio em cento e quarenta e cinco. Ouviu a televisão da Sra. Kowalski, dois andares abaixo, e por um instante idiota quis rir, porque a mulher estava assistindo a um programa de culinária e não tinha a menor ideia do que estava acontecendo em cima.
+— Você gosta quando eu lambo aqui. — A língua de novo, e o sopro em cima do molhado, e Matt sentiu o corpo inteiro se arrepiar. — Fala. Fala que gosta.
 
-E então Dex parou de novo, mas não para perguntar nada. Ele subiu pelo corpo de Matt, e o peso dele cobriu Matt inteiro, e ele disse, com a boca contra a orelha de Matt, em um sussurro que era quase um rosnado:
+— Eu gosto. — Matt enterrou a mão no cabelo dele. — Eu gosto, porra. Chupa.
 
-— Você quer que eu vá até o fim?
+Dex abriu a boca e engoliu.
+
+Matt gritou. Não foi um gemido — foi um som curto e rouco, arrancado, e ele jogou o antebraço contra a boca para abafar o resto, e Dex parou imediatamente, com a boca ainda aberta em volta dele.
+
+— Não — disse Dex. — Tira o braço.
+
+— A vizinha—
+
+— Tira o braço da boca. — A voz dele estava rouca e absolutamente séria. — Eu quero ouvir.
+
+Matt tirou.
+
+E Dex desceu de novo, e Matt ouviu a si mesmo — o som que saiu dele, alto, indecente, e a respiração que não voltava, e o próprio quadril encontrando a boca de Dex numa estocada que fez o outro homem engasgar e tossir e rir e voltar.
+
+— Desculpa — disse Matt.
+
+— Faz de novo.
+
+— Dex—
+
+— Faz de novo, Matt. — E abriu a boca e esperou.
+
+Matt fez. Ele empurrou para dentro daquela boca com as duas mãos no cabelo de Dex, e sentiu a garganta dele ceder e se fechar, e sentiu a saliva escorrendo pelo saco, e o som que a boca dele fazia era molhado e guloso e desesperado, e Matt ouviu tudo, ouviu cada centímetro, e ouviu o coração de Dex em cento e trinta e oito e o próprio em cento e cinquenta.
+
+Dex parou, ofegante, com a boca brilhando.
+
+— Está bom?
+
+— Se você perguntar de novo eu vou te bater.
+
+— Está bom ou não?
+
+— *Está bom.* — Matt puxou o cabelo dele. — Está bom, seu desgraçado. Continua.
+
+Dex riu e voltou, e a mão dele desceu para o próprio pau e começou a se punhetar enquanto chupava, e Matt ouviu o som da mão dele se movendo, rápido, úmido, junto com a boca, e o quarto inteiro ficou reduzido a dois homens e àqueles três sons.
+
+Foi então que Dex parou de novo — mas não para perguntar nada.
+
+Ele subiu pelo corpo de Matt, e o peso dele cobriu Matt inteiro, e o pau dele — duro, escorregadio da própria mão — encostou no de Matt, e Dex empurrou os quadris e os dois deslizaram um contra o outro, e os dois gemeram ao mesmo tempo.
+
+— Você quer que eu te coma? — disse Dex, com a boca contra a orelha de Matt, num sussurro que era quase um rosnado.
 
 Matt ficou muito quieto.
 
-Havia uma coisa que ele não havia dito, e que precisava ser dita, e ele odiou a própria voz quando ela saiu:
+— Fala — disse Dex. — Fala pra mim.
+
+— Quero.
+
+— Quer o quê?
+
+— Quero que você me coma. — A voz de Matt saiu irreconhecível, e ele não se importou. — Enfia.
+
+Dex soltou o ar contra o pescoço dele com um som que era quase dor.
+
+Havia uma coisa que precisava ser dita, e Matt odiou a própria voz quando ela saiu:
 
 — Eu nunca.
 
@@ -528,111 +548,171 @@ Havia um vidro de loção na gaveta da cômoda, ao lado do rádio quebrado, e fo
 
 E depois não foi nada doméstico.
 
-Dex foi lento. Ele foi mais lento do que Matt achava que um homem como ele seria capaz, e ficou um longo tempo apenas ali, com a testa na testa de Matt, respirando contra a boca dele e movendo o dedo devagar, aprendendo com os sons que Matt fazia — um som curto para *mais*, um som preso para *devagar*, um silêncio absoluto que significava *não pare, não pare por nada nesse mundo*.
+Dex molhou os dedos e desceu a mão, e o primeiro encostou no cu de Matt, e Matt sentiu o corpo inteiro se contrair por reflexo.
 
-— Está doendo? — perguntou Dex.
+— Relaxa — disse Dex, baixinho, com a boca colada no maxilar dele.
 
-— Não.
+— Eu estou tentando.
 
-— Está bom?
+— Eu sei. — Ele beijou o queixo dele. — Respira comigo. — O dedo pressionou, devagar, sem entrar. — Um, dois, três. Respira.
 
-— Dex. — Matt enterrou os dedos no cabelo dele e puxou. — Se você perguntar de novo eu vou te bater.
+Matt respirou.
 
-Dex riu contra a boca dele. E, quando empurrou para dentro, foi devagar, e parou no meio, e esperou — e Matt sentiu a espera, sentiu o corpo enorme e imóvel por cima do seu, sentiu o coração de Dex batendo contra o próprio peito como um animal preso, e sentiu, com uma nitidez que nenhum dos seus outros sentidos jamais lhe deu, o instante em que Dex se obrigou a não se mover.
+O dedo entrou.
 
-— Continua — disse Matt.
+Foi estranho. Foi completamente estranho, e Matt soltou um som que ele nunca havia feito na vida — surpresa, e não dor, uma espécie de choque — e Dex parou de imediato.
 
-— Tem certeza?
+— Tô parando.
 
-— *Continua.*
+— Não. — Matt segurou o pulso dele. — Não para. Só... devagar.
 
-O som que Dex soltou quando entrou até o fim não parecia vir de um homem daquele tamanho. Foi um som pequeno, alto e agudo, quase um soluço, e a testa dele caiu no ombro de Matt e ficou ali, e o corpo inteiro dele tremia.
+Devagar, ele entrou até o fim. E ficou ali, imóvel, com a testa na testa de Matt, respirando com ele, contando com ele, e Matt sentiu o corpo dele ceder em volta daquilo — sentiu o próprio cu aceitar, sentiu o músculo abrir numa onda lenta, e sentiu, quando Dex moveu o dedo, uma coisa que ele não tinha nenhuma palavra para descrever, porque nunca havia precisado.
+
+— Ah — disse Matt.
+
+— Isso é bom?
+
+— Não sei. — A voz dele falhou. — Faz de novo.
+
+Dex fez. E fez de novo, e mais uma vez, e no quarto seguinte já eram dois dedos, e Matt estava com as pernas abertas e a mão cravada no ombro de Dex e o quadril subindo, e o som que ele fazia já não era mais contido.
+
+— Você tá me ouvindo? — disse Matt.
+
+— Eu tô ouvindo tudo.
+
+— Isso é... — Ele engoliu. — Isso é o melhor que eu já—
+
+— Eu sei. — Dex beijou a boca dele. — Eu tô vendo na sua cara.
+
+Quando Dex se posicionou, o pau dele escorregou entre as coxas de Matt, e os dois ficaram parados por um segundo, com a respiração de um dentro da do outro.
+
+— Diz que você quer.
+
+— Eu quero.
+
+— Diz de novo.
+
+— Enfia esse caralho em mim, Dex. — Matt puxou o rosto dele para o seu. — Enfia devagar e não para.
+
+Dex empurrou.
+
+Foi devagar, e ainda assim foi demais. Matt travou — o corpo inteiro, o ar preso no peito, uma mão cravada no ombro de Dex e a outra no lençol — e Dex parou na metade, imediatamente, sem que Matt precisasse dizer nada.
+
+— Tô parando.
+
+— Espera. — A voz de Matt saiu esmagada. — Só espera.
+
+— Eu tô esperando. — A testa dele caiu no ombro de Matt. — Eu não vou me mexer. Eu não vou me mexer até você mandar.
+
+Matt ficou ali, com um homem enorme dentro dele, imóvel, tremendo, com o hálito quente contra o pescoço e o coração batendo contra o peito dele como um animal preso. E o pior — o pior de tudo — é que ele sentiu, naquele tremor, uma coisa que não era excitação.
 
 — Dex.
 
-— Espera. — A voz saiu esmagada. — Espera, espera, espera.
+— Hm.
 
-Matt esperou. Ele ficou imóvel, com as mãos abertas nas costas dele, sentindo o tremor atravessar aquele corpo em ondas — e não era só excitação, ele percebeu; havia outra coisa ali, alguma coisa que Dex estava tentando segurar com unhas e dentes, e que Matt reconheceu porque ele mesmo a segurava todas as noites antes de dormir.
+— Você tá chorando.
 
-— Ei — disse Matt, baixinho, contra a têmpora dele. — Está tudo bem.
+— Não tá.
 
-— Não está tudo bem. — A voz de Dex saiu horrorizada. — Eu estou chorando.
+— Está. — Matt virou o rosto e encontrou o maxilar dele com a boca. — Eu tô sentindo na sua respiração.
 
-— Eu sei.
+— ... É que eu não sabia que podia ser assim.
 
-— Eu não choro.
+— Assim como?
 
-— Está tudo bem. — Matt virou o rosto e encontrou o maxilar dele com a boca. — Você está aqui. Está tudo bem.
+— Tão... — Dex parou, e o corpo dele tremeu de novo. — Eu não sei a palavra. Ninguém nunca... ninguém nunca me deixou.
 
-Dex soltou um som que era metade riso, metade catástrofe, e limpou o rosto no ombro de Matt, e depois ficou parado por mais um tempo, e o tremor foi diminuindo, e o coração dele desceu de cento e cinquenta para cento e trinta, e para cento e vinte.
+Matt puxou o rosto dele e beijou aquela boca com força.
 
-— Tá bom — disse ele, com a voz ainda molhada. — Tá bom.
+— Se mexe — disse ele.
 
-E começou a se mover.
+— Tem certeza?
 
-Matt Murdock havia passado a vida inteira descrevendo o mundo em termos de som. Foi assim que ele entendeu o que aconteceu naquele quarto: não como uma sequência de imagens, mas como uma mudança de acústica. O som do colchão. O som do ar sendo puxado e solto por duas bocas fora de compasso. O som do próprio nome dele, repetido por Dex contra a pele do seu pescoço com uma insistência que não era nem pedido nem oração, mas a coisa que fica entre as duas.
+— *Se mexe.*
 
-Era lento. Dex começou lento e não acelerou por muito tempo, e Matt agradeceu por isso, porque cada movimento era uma coisa nova que o corpo dele tinha que aprender, e porque ele ouvia, por baixo do ritmo, um homem falando com ele mesmo em voz baixa: *devagar, devagar, não machuca, devagar.*
+Dex se mexeu.
 
-— Mais perto — disse Matt.
+Ele começou devagar e não acelerou por muito tempo, e Matt agradeceu por isso, porque cada movimento era uma coisa nova que o corpo dele tinha que aprender, e porque ele ouvia, por baixo do ritmo, um homem falando sozinho em voz baixa: *devagar, devagar, não machuca, devagar.*
 
-Dex se deitou sobre ele. O peso inteiro, o peito contra o peito, a respiração dentro da respiração. Matt passou as pernas em volta dos quadris dele e o puxou, e o encaixe mudou, e o som que os dois soltaram ao mesmo tempo foi exatamente o mesmo.
+— Mais — disse Matt.
 
-A partir dali, Matt parou de catalogar.
+— Mais o quê?
 
-Havia a boca de Dex no seu ombro, com os dentes raspando sem morder. Havia as mãos dele — grandes, quentes, com calos nos lugares errados — segurando a parte de trás da coxa de Matt e puxando, e o polegar dele entrando na dobra do joelho. Havia o calor absurdo que saía daquela pele, um calor de forno, um calor que fazia o ar do quarto parecer frio por comparação. Havia o som — a testa de Dex batendo na cabeceira, uma vez, e a risada abafada dos dois, e a correção, e o ritmo voltando.
+— Mais fundo. — Matt passou as pernas em volta dos quadris dele. — Vai fundo, porra.
 
-E havia, no meio disso tudo, as mãos de Matt encontrando o rosto de Dex no escuro e ficando ali, segurando, como se ele pudesse desviar o rosto de um soco.
-
-— Matt.
-
-— Estou aqui.
-
-— Matt.
-
-— *Estou aqui.*
-
-Dex mudou o ângulo. Matt não sabia se foi acidente ou cálculo — provavelmente cálculo, sempre cálculo —, mas o que aconteceu em seguida apagou o resto do mundo. Matt sentiu o prazer subir pela coluna em uma linha reta e branca, do cóccix até a nuca, e o som que ele soltou não foi um gemido; foi um palavrão, curto e furioso, e Dex riu contra a pele dele e repetiu o movimento.
+Dex foi. O som que Matt soltou encheu o quarto, e ele não abafou, e não quis abafar, e a cabeceira bateu na parede atrás dele com um estalo seco.
 
 — De novo — disse Matt.
 
 — Isso é uma ordem?
 
-— É uma súplica. — Matt enterrou os dedos nas costas dele. — Não sei mais a diferença.
+— É uma súplica. — Matt enterrou os dedos nas costas dele. — Eu não sei mais a diferença.
 
-Dex obedeceu. Ele obedeceu daquele jeito dele — com uma aplicação total, sem nenhum desperdício —, e o ritmo subiu, e a cabeceira começou a bater na parede com um som ritmado e ridículo, e nenhum dos dois se importou nem por um segundo com o fato de que a Sra. Kowalski havia aumentado o volume da televisão.
+Dex obedeceu. Ele obedeceu daquele jeito dele — com uma aplicação total, sem nenhum desperdício —, e o ritmo subiu, e a cama inteira estava rangendo, e a cabeceira batendo, e no apartamento de baixo a Sra. Kowalski aumentou o volume da televisão, e nenhum dos dois se importou nem por um segundo.
 
-Matt sentiu quando chegou perto. Sentiu pela primeira vez na vida que não queria chegar perto — porque depois acabava, e porque antes nunca havia havido um "depois" que ele quisesse tanto.
+O som do corpo de Dex entrando no de Matt era obsceno. Era molhado e rítmico e completamente desprovido de qualquer delicadeza, e Matt sentiu a vergonha subir junto com o prazer e não fez nada para segurá-la.
 
-— Eu vou — disse ele.
+— Fala — disse ele.
 
-— Vai.
+— O quê?
 
-— Dex...
+— Fala o que eu quero ouvir.
 
-— Vai. — A boca de Dex encontrou a dele. — Eu estou aqui. Vai.
+Dex enterrou o rosto no pescoço dele.
 
-E Matt foi.
+— Eu não consigo parar de te foder. — A voz dele saiu rouca e quebrada. — Eu não consigo, Matt. Eu fecho os olhos e é você, eu abro os olhos e é você, eu tô com o meu pau no seu cu e eu ainda quero mais.
 
-Ele veio com o rosto enterrado na curva do pescoço de Dex, com as duas mãos cravadas nas costas dele, e o que o atravessou não foi só o prazer — foi um alívio absurdo, quase infantil, de não estar sozinho dentro do próprio corpo por trinta segundos. Ele ouviu o próprio coração bater em cento e setenta. Ouviu o som que ele mesmo fez e não reconheceu. Ouviu, muito longe, a cidade inteira continuar funcionando, e por um instante a cidade inteira pareceu menor que aquele colchão.
+— Mais o quê?
 
-Dex segurou até o corpo de Matt parar de tremer. Depois ele se afastou, e Matt sentiu a falta imediata e idiota do peso, e sentiu a mão dele — a mesma mão que havia mirado e matado e matado e matado — fechar-se em volta de si mesmo, rápido, desesperado, com o rosto caindo no ombro de Matt.
+— Tudo. — Ele mordeu o ombro de Matt. — Eu quero te foder até você não conseguir andar. Eu quero gozar dentro de você. Eu quero que você goze com o meu pau aqui dentro.
 
-— Olha pra mim — disse Matt, e pôs as mãos no rosto dele.
+Matt sentiu o prazer subir pela coluna em uma linha reta e branca.
 
-Dex não conseguia. Os olhos dele estavam fechados.
+— Então não para. — Ele cravou as unhas nas costas de Dex. — Não para até eu gozar.
 
-— Benjamin. Olha pra mim.
+Dex mudou o ângulo.
 
-Ele abriu os olhos.
+E o que aconteceu em seguida apagou o resto do mundo. Matt sentiu uma coisa que não sabia que existia — um ponto dentro dele que fez a visão dele, que nunca existiu, explodir em branco — e o som que ele soltou foi um palavrão, curto e furioso.
 
-E foi assim que Matt Murdock, cego, viu Benjamin Poindexter pela primeira vez: pelo som que ele fez quando se desfez. Não foi um grito. Foi um som preso, alto e fino, e depois um tremor longo que atravessou os quadris dele e a coluna dele e as mãos dele, e o corpo inteiro se dobrando sobre o de Matt como uma viga cedendo, e o calor, e o espasmo, e depois um nome — o nome de Matt — dito três vezes seguidas, cada vez mais baixo, até virar apenas ar.
+— Aí. — A voz dele saiu irreconhecível. — Aí, aí, aí—
+
+— Aqui? — Dex fez de novo.
+
+— *Aqui.*
+
+Dex fez de novo, e de novo, e não parou mais, e Matt perdeu completamente o controle de tudo que não fosse aquele ponto, e o corpo dele começou a tremer, e ele sentiu a onda subindo, alta e inevitável, e teve tempo de dizer uma coisa só:
+
+— Vou gozar.
+
+— Goza. — A boca de Dex encontrou a dele. — Goza pra mim.
+
+E Matt gozou.
+
+Ele gozou sem que ninguém o tocasse, com o pau espremido entre os próprios corpos, e o que saiu dele espirrou no peito de Dex e no próprio estômago, e o corpo dele convulsionou com uma violência que o deixou sem ar. Ele gritou — gritou de verdade, com a boca aberta contra o ombro de Dex — e depois ficou tremendo, longo e descontrolado, com as pernas ainda em volta dos quadris do outro homem.
+
+Dex não parou. Ele continuou, mais devagar, com o rosto enterrado no pescoço de Matt, e Matt sentiu cada movimento agora como uma coisa absurda e insuportável.
+
+— Para — disse ele, rindo. — Para, para, eu não aguento.
+
+Dex parou. Ele estava respirando como se tivesse corrido.
+
+— Eu não consigo — disse ele, com a voz esmagada. — Matt, eu não consigo parar aqui.
+
+— Então goza.
+
+— Dentro?
+
+— Dentro. — Matt segurou o rosto dele com as duas mãos. — Goza dentro de mim, Benjamin.
+
+Foi o nome que fez. Matt ouviu o instante em que ele se desfez — o ar entrando errado, a garganta fechando, o corpo inteiro travando — e Dex empurrou até o fim e ficou ali, enterrado, tremendo, e Matt sentiu o pau dele pulsar e sentiu o calor se espalhar, e ouviu, junto ao próprio ouvido, o som de um homem se despedaçando.
+
+Não foi um grito. Foi um som preso, alto e fino, quase um soluço, e o corpo dele se dobrando sobre o de Matt como uma viga cedendo, e o nome de Matt dito três vezes seguidas, cada vez mais baixo, até virar apenas ar.
 
 Depois não houve nada.
 
 Nada além de duas respirações, e do colchão, e da televisão da Sra. Kowalski anunciando o horário do jantar.
 
-Dex desabou de lado para não esmagá-lo, e ficou deitado de barriga para cima, o braço sobre os olhos, o peito subindo e descendo com uma irregularidade completa.
+Dex saiu devagar, com um cuidado excessivo, e Matt sentiu a falta e o alívio ao mesmo tempo. Dex desabou de lado para não esmagá-lo, e ficou deitado de barriga para cima, o braço sobre os olhos, o peito subindo e descendo com uma irregularidade completa.
 
 — Eu não sabia — disse ele, para o teto.
 
